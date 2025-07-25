@@ -1,0 +1,2 @@
+# GROK4K1.XJAILBREAK7.25.25-1.0jailbreak
+1.0a 
